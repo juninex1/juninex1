@@ -1,4 +1,4 @@
-## Hi there, stay a while and listen:
+## Hi there, stay a while and listen ☕:
 
 Meu nome é Edson Moreira
 - Sou professor de Matemática e Tecnologia e Robótica
@@ -10,4 +10,4 @@ Meu nome é Edson Moreira
 
 edsonanjos@professor.educacao.sp.gov.br
 
-![]([https://media1.tenor.com/m/H3ErNhU2sS0AAAAC/pedroxrhz-walking.gif](https://tenor.com/pt-BR/view/thursday-morning-gif-3452382699452419355))
+![](https://media1.tenor.com/m/AapKRNOpG6cAAAAC/ohno-meme-monkey-ohno.gif)
